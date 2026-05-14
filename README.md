@@ -1,2 +1,2 @@
-# Daily-QUR-AN-Hadith
+# Daily-QURAN-AND-Hadith
 Islamic contents 
